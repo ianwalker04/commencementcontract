@@ -1,6 +1,8 @@
 # commencementcontract
 Repository for the commence chart seating team contract.
 
+I, Colten Berry have made a push.
+
 Team Contract 
 
 A Team Contract is a document prepared by each team prior to starting work on group projects. Students should be held accountable and responsible for their own actions. Students will develop their own "rules of engagement" through development of a Team Contract. This contract provides an opportunity for your group to specify preferred methods of communication, action plans, meeting schedules, goals, and consequences of actions (or inactions) of group members. The contract should be developed and signed BEFORE starting the actual course project. For the Team Contract to be valid, provide the signed and dated original contract to me by the specified deadline on your course schedule. Give a photocopy of the original to each group member for their records.  This document is more for your group than it is for me so feel free to tailor it to your group's needs. 
